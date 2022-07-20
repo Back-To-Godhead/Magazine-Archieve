@@ -1,0 +1,1 @@
+Telugu language magazine
