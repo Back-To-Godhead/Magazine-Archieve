@@ -1,0 +1,1 @@
+Gujrati language magazine
